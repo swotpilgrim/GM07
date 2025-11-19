@@ -12,19 +12,19 @@ And in the background of every photo, barely visible but present if you knew to 
 
 Earl and Dotty hadn't been hiding evidence. They'd been documenting kills.
 
-Ricky stood before the wall at midnight while the others tried to sleep. His combat mind catalogued details, processing patterns the way he'd learned to read terrain in jungle warfare. Each frame was different—some ornate gilt, some simple wood, some cheap plastic—but the content followed a rigid formula. Trophy front and center. Background deliberately composed. Earl or Dotty visible in reflection or shadow.
+Ricky stood before the wall at midnight while the others tried to sleep. His combat mind catalogued details, processing patterns. Each frame was different—ornate gilt, simple wood, cheap plastic—but the content followed rigid formula. Trophy front and center. Background deliberately composed.
 
-The air smelled like old photographs and dust. And underneath, faintly: death. Not rot—the freezer kept bodies too cold for that. Just the absence of life, preserved and displayed.
+The air smelled like old photographs and dust. And underneath, faintly: death.
 
-"You see it too." Dale appeared beside him, quiet as desert wind. The mechanic moved with practiced silence, a skill learned from years of desert living.
+"You see it too." Dale appeared beside him, quiet as desert wind.
 
 "See what?"
 
 "The time wrongness."
 
-Ricky had noticed but hadn't articulated it. Dale pointed to a photo dated 1956—scrawled on the frame's bottom in Earl's handwriting. The penmanship was neat, almost obsessive. The vehicle was a '54 Chevy, chrome gleaming. Normal enough.
+Ricky had noticed but hadn't articulated it. Dale pointed to a photo dated 1956—scrawled on the frame's bottom. The vehicle was a '54 Chevy, chrome gleaming.
 
-Except in the background: newspapers visible through the diner window showing headlines from 1958. Ricky squinted, read the date. Two years in the future from when Earl had supposedly taken the photo.
+Except in the background: newspapers visible through the diner window showing headlines from 1958. Two years in the future from when Earl had supposedly taken the photo.
 
 "Two-year discrepancy," Dale said. "And here—" He indicated another frame. "1967 according to Earl's dating. But that's a 1972 Ford in the background, and the clothing styles are mid-seventies."
 
@@ -46,9 +46,9 @@ A 1981 photo with a vehicle that wouldn't be manufactured until 1983.
 
 Ricky had experienced time distortion in combat. Firefights that felt like hours but clocked at minutes. Nights on watch that stretched eternal. But that was adrenaline and fear. This was geography itself breaking causality's rules.
 
-He examined specific trophies more carefully. The 1967 Mustang—he'd identified it earlier from Grace's cataloguing. Owner Peter Williams, UCLA student. The Mustang gleamed pristine in the photo, cherry red paint reflecting sun, chrome bumper mirror-bright.
+He examined specific trophies. The 1967 Mustang—Peter Williams, UCLA student. The Mustang gleamed pristine in the photo, cherry red paint reflecting sun, chrome mirror-bright.
 
-But Ricky had seen that Mustang in the parking lot their first day. Covered in dust, tires flat, chrome pitted by years of sandblasting wind. Paint faded to dull pink. Fifteen years of desert exposure had reduced it to a carcass.
+But Ricky had seen that Mustang in the parking lot their first day. Covered in dust, tires flat, chrome pitted. Paint faded to dull pink. Fifteen years of desert exposure had reduced it to a carcass.
 
 "The photo shows it new," he said. "But the actual vehicle aged normally."
 
