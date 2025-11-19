@@ -42,7 +42,23 @@ The prints led from diner to each vehicle and back. A clear trail of intent.
 
 Grace appeared with her camera, hair pulled back, Pentax already raised. She photographed the prints from multiple angles, the sabotage, the correlation between Earl's boots visible through the diner window and the prints in the gravel. Building evidence, layer by methodical layer. The anthropologist in her knew documentation was survival.
 
-Victor continued examining his truck. The damage was reversible—with proper parts and tools, he could fix everything in maybe four hours. But parts were fifty miles away. Tools were limited. And they didn't have four hours of safety.
+Ricky emerged from Victor's truck cab, expression dark. "My duffel was searched."
+
+Victor straightened. "What?"
+
+"Items moved. Subtle, but moved. I pack the same way every time—Army habit."
+
+Dale checked his belongings. "Mine too. Toolbox reorganized."
+
+Grace's face paled. "My camera bag—strap on the wrong side."
+
+Denise appeared from the diner. "They always search. Looking for contacts, anyone who might come looking. Earl goes through belongings at night while you sleep. Dotty watches."
+
+Victor felt violation crawl over his skin. They weren't victims of random violence. They were being processed. Catalogued. Prepared for murder with the same methodical care Earl used to sabotage engines.
+
+"Bastards," Ricky said.
+
+Victor continued examining his truck, anger replacing fear. This wasn't supernatural curse or cosmic horror. This was methodology. Serial killer methodology with impossible elements layered on top. And methodology had weaknesses.
 
 He moved to the truck bed, inventoried what he had:
 
@@ -50,21 +66,17 @@ Emergency supplies: flares, first aid, water purification tablets, road maps.
 Tools: basic socket set, wrenches, duct tape, electrical wire.
 Cargo: transmission parts bound for Phoenix (useless for current vehicles).
 
-Not enough to effect repairs. But enough for other purposes. Victor's mind shifted from mechanic to tactician. In the Army, before trucking, he'd learned to improvise weapons from civilian supplies. A road flare could become an incendiary device. Electrical wire could restrain or create tripwires. Even transmission fluid, in the right circumstances, burned hot and long.
+Not enough to effect repairs. But enough for other purposes. Road flares could burn. Electrical wire could restrain. Even transmission fluid, in the right circumstances, became fuel.
 
-"Dale," he called. "Your truck have any acetylene? For welding?"
+"Dale," he called. "Your truck have any acetylene?"
 
 "Tank's half full. Why?"
 
-"Thinking about fire. If we need to burn something." Victor met his eyes. "Destroy evidence, create distraction, or—worst case—deny them the hunting ground."
+"Thinking about fire. If we need to burn something."
 
 Dale's expression darkened. "The diner."
 
-"Maybe. Last resort. But having the option matters. Control of the battlefield includes scorched earth if necessary."
-
-"That's extreme."
-
-"So is thirty-seven murders. I'm thinking tactically—every option on the table, prioritized from best to worst. Fire's at the bottom. But it's there."
+"Last resort. But having the option matters."
 
 They worked in silence as dawn broke fully. Victor cataloguing evidence, Dale gathering supplies. Grace documenting everything on film.
 
@@ -92,11 +104,9 @@ Victor showed Ricky the photographs Grace had taken. Cut fuel line close-up. Bat
 
 "Yeah."
 
-They returned to the group, gathering behind the vehicles where Denise waited in the shade. Victor spread his documentation across the van hood beside Grace's victim photos. Boot print photographs next to freezer documentation. Sabotage evidence next to victim identification. Dale's ground-penetrating scan printouts showing thirty-seven burial sites.
+They returned to the group. Victor spread documentation across the van hood. Boot prints, sabotage evidence, victim photos, burial site scans. The complete picture: thirty-seven murders, methodical processing, impossible killers.
 
-The complete picture emerged like pieces of a puzzle snapping into place: Thirty-seven murders spanning decades, methodical victim selection criteria, professional sabotage trapping travelers, systematic processing turning people into trophies, and a geographic location that bent reality's rules to enable it all.
-
-"This is everything," Grace said, arranging the materials with academic precision. "We have motive, means, opportunity, evidence, witness testimony. If this was normal serial killer case, we'd have everything needed for conviction."
+"This is everything," Grace said. "We have motive, means, opportunity, evidence, witness testimony. If this was normal serial killer case, we'd have everything needed for conviction."
 
 "But it's not normal," Victor said.
 
@@ -132,11 +142,11 @@ Ricky drilled combat formations again. Tightening response times, smoothing coor
 
 Denise watched through windows, ready to call warnings if Earl and Dotty moved differently.
 
-By afternoon, they'd achieved maximum readiness. The heat had built to its daily peak, shimmering waves rising from chrome and gravel, making the desert horizon waver like a mirage. But their preparations were solid—weapons distributed, evidence organized, plans rehearsed.
+By afternoon, they'd achieved maximum readiness. Weapons distributed, evidence organized, plans rehearsed.
 
-"Tonight we rest," Victor announced, voice carrying command authority he hadn't used since Army days. "Weapons close, formations memorized. Tomorrow dawn, we execute."
+"Tonight we rest," Victor announced. "Weapons close, formations memorized. Tomorrow dawn, we execute."
 
-They gathered supplies, established defensive position behind the vehicles. Protected from direct view of the diner windows, able to see both entrances, grouped for mutual support. Victor positioned the trucks to create a natural fortification—metal walls against attack, shade against sun, psychological barrier between them and the diner's pull.
+They gathered supplies, established defensive position behind the vehicles. Victor positioned the trucks as fortification—metal walls against attack, shade against sun, barrier between them and the diner.
 
 As sunset approached, Victor stood watching the diner. Chrome glinting orange-red in dying light, the building's curved surfaces catching fire from the western sky. The neon "EAT" sign dormant, waiting for darkness to pulse it to life with that bloodred glow.
 

@@ -125,95 +125,33 @@ Ricky met Denise's eyes. "We try anyway. Maybe restraining Earl and Dotty breaks
 
 She nodded, hope fragile in her expression.
 
-"Formation drills," Ricky announced. "Now. We practice until it's muscle memory."
+"We prepare tonight," Ricky said. "Get everything ready. Tomorrow dawn, we execute."
 
-They spent two hours rehearsing in the pre-dawn cold, breath fogging, fingers stiff on weapons.
+They spent the night preparing. Each person found purpose in action.
 
-Victor and Dale as Team A, practicing coordinated strikes with crowbar and tire iron. Ricky demonstrated: "High-low. Victor goes for head or shoulders, forces them to block high. Dale sweeps low, knees or legs. Alternate rhythm. Don't let them predict."
+Ricky sharpened knives methodically. Dale's whetstone against steel, rhythmic scraping in the desert night. He tested each edge against his thumb—not hard enough to cut, just feeling the keenness. Kitchen knives weren't combat blades, but sharp was sharp. In Vietnam he'd seen men killed with broken bottles, with sharpened sticks, with bare hands when it came to it. It was the wielder, not the weapon. He worked the blade at precise angles, muscle memory from a hundred nights on firebase perimeters. The familiar routine calmed him.
 
-Victor swung the crowbar in slow motion. "Like this?"
+Victor tested restraints. Electrical wire from his truck, thick gauge copper. He wrapped it around booth fixtures, pulled hard, checked integrity. Strong enough to hold a man—even a supernatural one. Maybe. He'd learned knot-tying in the Army, practiced until his hands remembered. Bowline, clove hitch, square knot. Muscle memory from decades past.
 
-"Faster. Earl won't move slow. Again."
+Grace documented everything. Her Pentax clicking methodically. Photos of weapons laid out. Photos of the group planning. Photos of the diner from outside, Earl and Dotty visible through windows. Evidence. Always evidence. If they died tomorrow, someone would find her film. Someone would know what happened here.
 
-They practiced the pattern. High strike, low strike, switch positions, repeat. Clumsy at first—Victor nearly clipped Dale's shoulder, Dale's timing off. But muscle memory built with repetition.
+Dale prayed quietly. Not Christian prayer—older words in Laguna, his grandfather's language. Asking protection, asking guidance, asking forgiveness for violence about to come. He burned sage he kept in the truck, let smoke drift over weapons. Blessing or ritual or psychological comfort—didn't matter which. It steadied his hands.
 
-Ricky and Grace as Team B. Knife work was different—close quarters, intimate violence. Grace held the blade uncertainly.
+Denise trembled. Sat in the van wrapped in a blanket despite the heat, watching them prepare. Thirty years of helplessness ending tomorrow. Either freedom or death. Both terrified her equally.
 
-"Not like that," Ricky said, adjusting her grip. "Blade down, edge out. Slash, don't stab. Stabbing gets your knife stuck in bone. Slashing opens arteries, creates damage, you can retract fast."
+Outside, Earl whistled. Same tune he'd been whistling for days—some big band number from the forties. Cheerful, incongruous. Like he knew what they were planning. Like he wasn't concerned.
 
-Grace's face was pale but determined. She practiced the motion—quick slash, step back, slash again. Creating distance while doing damage.
+Maybe he wasn't. Sixty years of this. Sixty years of travelers planning escapes, planning fights, planning resistance. All of them dead now. All of them in the freezer or buried in the desert.
 
-"Good. Now together. I engage, you circle behind. Two attackers, multiple angles. They can't defend everywhere at once."
+But none of them had known what Earl and Dotty were. None had prepared. None had weapons and evidence and tactical plans.
 
-Denise stood in protected center position, calling positions as Ricky instructed. "Earl at nine o'clock! Dotty flanking right!" Her voice gained strength with each call. Thirty years of passive witnessing transforming into active participation.
+Ricky hoped that mattered.
 
-They weren't soldiers. Victor had trucker's strength and practical sense but his movements were heavy, telegraphed. Dale moved with desert-taught economy but lacked speed. Grace was quick and smart, adapted fast, but flinched from violence.
+The night stretched. Hours passing in tense silence broken only by whetstone scraping, wire testing, camera clicking, prayer murmuring. Nobody slept. Tomorrow would bring violence—first they'd faced in this place, first they'd chosen rather than endured.
 
-But they were learning. Ricky drilled them relentlessly.
+Ricky mentally rehearsed scenarios. Earl attacks from the left—Victor blocks with crowbar, Ricky strikes from behind. Dotty flanks—Grace intercepts, Dale supports. Both attack together—form defensive circle, Denise protected center. Serial engagement, maintain formation, don't separate.
 
-By sunrise, they'd achieved basic competence. Not good. But better than nothing.
-
-"Again," Ricky said. "From different approach angle."
-
-They drilled in parking lot's dawn light. Earl and Dotty visible through diner windows, moving through breakfast prep. If they noticed the combat practice, they gave no sign.
-
-"Faster," Ricky demanded. "Earl moves faster than this. Dotty's quicker. Speed matters."
-
-Victor was breathing hard. Dale's age showed in slower reflexes. Grace's academic life hadn't prepared her for this. But they pushed through, improvement visible.
-
-By full morning, Ricky called halt.
-
-"Better. Not good, but better. Rest now. Eat, hydrate, maintain strength. Tonight we review plans. Tomorrow dawn, we execute."
-
-They dispersed. Victor to check vehicles again, futile but occupying hands and mind. Grace to document more evidence, her camera a shield against fear. Dale to run another ground scan, finding comfort in mechanical precision. Denise to rest in the van's shade, exhausted by hope.
-
-Ricky stayed in the parking lot, running solo drills. Knife work, movement patterns, strike-retreat-strike. Muscle memory from military training reasserting itself after years of civilian softness.
-
-The sun climbed. Heat built. His shirt stuck to his back with sweat. But he kept drilling. In Vietnam, he'd learned that survival came down to preparation meeting opportunity. When the moment arrived, you didn't think—you executed trained responses or you died.
-
-Tomorrow would be that moment.
-
-A voice behind him: "You've done this before."
-
-Grace, camera in hand. She'd been photographing him, documenting the preparation.
-
-"Combat? Yeah. Different enemy, same principles."
-
-"You think it'll work?"
-
-"Honestly? Fifty-fifty odds. But that's better than waiting to be killed."
-
-"I'm scared."
-
-"Good. Fear keeps you sharp. Overconfidence kills." He wiped sweat. "You'll do fine. Good instincts—saw how fast you adapted."
-
-"I've never hurt anyone."
-
-"Neither had I, until I had to. Easier than you think when it's survival. Hard part comes after. But we deal with that later."
-
-Grace lowered her camera. "What if we don't?"
-
-"We will."
-
-"Fifty-fifty isn't great odds."
-
-"Fifty percent better than zero."
-
-She photographed him practicing, documenting. Always documenting.
-
-"If we die," she said, "these photos survive. Evidence that we tried."
-
-"We're not dying."
-
-"How do you know?"
-
-"Because I survived two tours in hell and I'm not dying in a desert diner. Neither are you. Neither is anyone."
-
-Conviction in his voice he almost believed.
-
-Grace left him to his drills.
-
-Ricky practiced until noon, then rested in shade. Sharpened his knife on Dale's whetstone. Checked formation positions again. Mentally rehearsed each scenario.
+Combat theory. Whether it worked against the already-dead remained to be seen.
 
 By evening, they gathered for final briefing behind the vehicles. The sun was setting, painting the desert orange and purple. The diner's neon sign would flicker on soon.
 
