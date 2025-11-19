@@ -12,17 +12,19 @@ And in the background of every photo, barely visible but present if you knew to 
 
 Earl and Dotty hadn't been hiding evidence. They'd been documenting kills.
 
-Ricky stood before the wall at midnight while the others tried to sleep. His combat mind catalogued details.
+Ricky stood before the wall at midnight while the others tried to sleep. His combat mind catalogued details, processing patterns the way he'd learned to read terrain in jungle warfare. Each frame was different—some ornate gilt, some simple wood, some cheap plastic—but the content followed a rigid formula. Trophy front and center. Background deliberately composed. Earl or Dotty visible in reflection or shadow.
 
-"You see it too." Dale appeared beside him, quiet as desert wind.
+The air smelled like old photographs and dust. And underneath, faintly: death. Not rot—the freezer kept bodies too cold for that. Just the absence of life, preserved and displayed.
+
+"You see it too." Dale appeared beside him, quiet as desert wind. The mechanic moved with practiced silence, a skill learned from years of desert living.
 
 "See what?"
 
 "The time wrongness."
 
-Ricky had noticed but hadn't articulated it. Dale pointed to a photo dated 1956—scrawled on the frame's bottom in Earl's handwriting. The vehicle was a '54 Chevy, chrome gleaming. Normal enough.
+Ricky had noticed but hadn't articulated it. Dale pointed to a photo dated 1956—scrawled on the frame's bottom in Earl's handwriting. The penmanship was neat, almost obsessive. The vehicle was a '54 Chevy, chrome gleaming. Normal enough.
 
-Except in the background: newspapers visible through the diner window showing headlines from 1958.
+Except in the background: newspapers visible through the diner window showing headlines from 1958. Ricky squinted, read the date. Two years in the future from when Earl had supposedly taken the photo.
 
 "Two-year discrepancy," Dale said. "And here—" He indicated another frame. "1967 according to Earl's dating. But that's a 1972 Ford in the background, and the clothing styles are mid-seventies."
 
@@ -44,17 +46,23 @@ A 1981 photo with a vehicle that wouldn't be manufactured until 1983.
 
 Ricky had experienced time distortion in combat. Firefights that felt like hours but clocked at minutes. Nights on watch that stretched eternal. But that was adrenaline and fear. This was geography itself breaking causality's rules.
 
-He examined specific trophies more carefully. The 1967 Mustang—he'd identified it earlier from Grace's cataloguing. Owner Peter Williams, UCLA student. The Mustang gleamed pristine in the photo.
+He examined specific trophies more carefully. The 1967 Mustang—he'd identified it earlier from Grace's cataloguing. Owner Peter Williams, UCLA student. The Mustang gleamed pristine in the photo, cherry red paint reflecting sun, chrome bumper mirror-bright.
 
-But Ricky had seen that Mustang in the parking lot their first day. Covered in dust, tires flat, chrome pitted. Fifteen years of desert exposure.
+But Ricky had seen that Mustang in the parking lot their first day. Covered in dust, tires flat, chrome pitted by years of sandblasting wind. Paint faded to dull pink. Fifteen years of desert exposure had reduced it to a carcass.
 
 "The photo shows it new," he said. "But the actual vehicle aged normally."
 
 "Because the trophy is the photograph, not the object," Dale said. "The place keeps the memory, not the thing. That's why phantom customers appear—memories playing on loop, not actual people."
 
-Ricky thought about the elderly trucker he'd followed into the desert. The man who'd vanished leaving no footprints. Memory given temporary form? Echo of a death from decades past?
+Ricky thought about the elderly trucker he'd followed into the desert. The man who'd vanished leaving no footprints. Memory given temporary form? Echo of a death from decades past? The place replaying its kills like a film projector stuck on repeat, showing the same horror over and over to an audience of none.
 
-Made as much sense as anything here.
+Made as much sense as anything here. Which was to say: no sense at all, except it was happening.
+
+He touched one of the photo frames. The glass was cold despite the diner's warmth. Behind it, a leather jacket hung on a hook, photographed with loving detail. Sarah Mendez's jacket, fourteen years old, runaway from Texas. The jacket in the photo looked new. Ricky wondered if it was still somewhere in the diner, or if Earl and Dotty had buried it with her body.
+
+"How many of these do you think are still here?" he asked. "The actual objects, not the photos."
+
+Dale looked around the diner. "Some. The jackets, rings, small items—probably kept in drawers or closets. Vehicles decay outside. But the photos preserve everything. That's what matters to the place."
 
 He moved to recent photos—victims from the last few years. The dating was more accurate, margins of error smaller. But inconsistencies remained. A 1980 photo showing a cassette player model from 1982. A 1981 photo with newspapers dated wrong by three months.
 
@@ -156,7 +164,15 @@ Or it might get them killed separately instead of together. But doing nothing gu
 
 Ricky studied the trophy wall one more time. Sixty years of victims. Hundreds maybe, dating back before Earl and Dotty. All those people who'd stopped at this location, been consumed by it, reduced to photographs and echoes.
 
+Each frame represented a life ended. A family that never got answers. Missing persons reports filed and gone cold. The disappeared swallowed by desert and time.
+
+Thirty-seven confirmed kills from Earl and Dotty's era. But these older frames—faded photos in antique frames showing people in clothes from the 1920s, 1930s. If the thin place predated Earl and Dotty, how many total victims? Hundreds? Thousands?
+
+The weight of it pressed down. This wasn't just a fight for survival against two killers. It was standing against something vast and ancient, something that had been consuming travelers since before highways existed. Since before America existed, maybe.
+
 He wouldn't join them.
+
+Couldn't. Wouldn't let the others join them either.
 
 "Tomorrow we plan the attack," he said.
 
@@ -169,6 +185,10 @@ Dale looked at him. "Attack?"
 "Got a better idea?"
 
 Dale didn't.
+
+And that settled it. Ricky had fought living enemies in a jungle war. Tomorrow he'd fight dead enemies in a desert trap. Same principles applied: identify the threat, plan the assault, execute with precision.
+
+Survive.
 
 They stood before the wall of trophies as midnight deepened. Outside, phantom customers drifted through the parking lot. Inside, Earl and Dotty moved through their eternal choreography.
 
